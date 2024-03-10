@@ -1,0 +1,1 @@
+# magzhanITstudio.kz
